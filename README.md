@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Panksi
+- 👋 Hi, I’m @panksi
 - 👀 I’m interested in Motorcycles  🏍
 - 🌱 I’m currently learning How to get out of here :D
 - 💞️ I’m looking to collaborate on anything that is useful for the people rather than coorporations
